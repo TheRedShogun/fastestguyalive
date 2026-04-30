@@ -2,6 +2,8 @@ This isn't about who's a ninja, a Nindroid, or even a ghost. Above all else, we'
 
 
 
-<a href=[https://github.com/fastestguyalive)]><img src=(https://komodo.ai/i/NnDGZT0HndSrZvu1bt91)></img></a>
+<img width="1200" height="675" alt="JPEG image" src="https://github.com/user-attachments/assets/40d7378d-cf01-44da-8ed2-82985b82377e" />
+
+
 
 
